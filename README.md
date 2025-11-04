@@ -1,0 +1,2 @@
+# seoeverything
+everything about seo
